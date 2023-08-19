@@ -16,6 +16,5 @@
 
 ## Developer profile
 
-- LinkedIn - [Ariful Islam](https://www.linkedin.com/in/arifulsajib/)
-- Facebook - [Ariful Islam](https://www.facebook.com/arifulsajib347/)
-- Instagram - [arifulsajib347](https://www.instagram.com/arifulsajib347/)
+- LinkedIn - [Arafath Qureshi](https://www.linkedin.com/in/mohammed-arafathulla-qureshi-883340228/)
+- Instagram - [Arafath Qureshi](https://www.instagram.com/arafath3172/)
